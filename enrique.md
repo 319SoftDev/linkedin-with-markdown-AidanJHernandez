@@ -14,7 +14,7 @@ _**Try our new donut flavors here!:**_
 ##
 2. Chocolate Fountain  
 ![Chocolate Fountain Doughnut](https://github.com/user-attachments/assets/e091bb16-9b83-42a8-a070-0c9fce3fa089)
-> _It'll give you that rich, bourgeoisie-eqsue chocolate icing._
+> _It'll give you that rich, bourgeoisie-eqsue chocolate icing flavor that makes you feel... uh... yeah. :D_ 
 ##
 3. Glazing Special  
 ![Glazing Special Doughnut](https://github.com/user-attachments/assets/b179ecc2-2f4a-41a1-bcd7-e4a2f6d67c44)
