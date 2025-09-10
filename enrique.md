@@ -14,7 +14,7 @@ _**Try our new donut flavors here!:**_
 ##
 2. Chocolate Fountain  
 ![Chocolate Fountain Doughnut](https://github.com/user-attachments/assets/e091bb16-9b83-42a8-a070-0c9fce3fa089)
-> _It'll give you that rich, bourgeoisie-eqsue chocolate icing flavor that makes you feel... uh... yeah. :D_ 
+> _It'll give you that rich, bourgeoisie-eqsue chocolate icing flavor that makes you feel... . :D_ 
 ##
 3. Glazing Special  
 ![Glazing Special Doughnut](https://github.com/user-attachments/assets/b179ecc2-2f4a-41a1-bcd7-e4a2f6d67c44)
@@ -22,11 +22,11 @@ _**Try our new donut flavors here!:**_
 ##
 4. Rengoku Special _(LIMITED TIME COLLAB!!)_  
 ![Rengoku Special Donut](https://github.com/user-attachments/assets/1b288bd2-50b4-4133-91db-d18808f1550c)
-> _It'll leave you speechless after you taste his flame. Yes, it is spicy._
+> _It'll leave you speechless after you taste his flame.._
 ##
 5. Ace Special _(LIMITED TIME COLLAB!!)_  
 ![Ace Special Donut](https://github.com/user-attachments/assets/2dadf655-437b-4c63-9e25-49c0cb5c2a77)
-> _Your brother will love this. No elaboration._
+> _Your brother will love this._
 ##
 
 ###### Copyright - GLAZERS 2025
