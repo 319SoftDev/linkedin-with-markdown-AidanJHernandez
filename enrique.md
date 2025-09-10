@@ -22,7 +22,7 @@ _**Try our new donut flavors here!:**_
 ##
 4. Rengoku Special _(LIMITED TIME COLLAB!!)_  
 ![Rengoku Special Donut](https://github.com/user-attachments/assets/1b288bd2-50b4-4133-91db-d18808f1550c)
-> _It'll leave you speechless after you taste his flame.._
+> _It'll leave you speechless after you taste his flame!_
 ##
 5. Ace Special _(LIMITED TIME COLLAB!!)_  
 ![Ace Special Donut](https://github.com/user-attachments/assets/2dadf655-437b-4c63-9e25-49c0cb5c2a77)
