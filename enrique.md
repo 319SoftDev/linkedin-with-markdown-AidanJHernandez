@@ -1,4 +1,4 @@
-# ![Doughnut Sheriff from The Amazing World of Gumball](https://github.com/user-attachments/assets/f3157d4f-9c9c-42d7-8d28-82e53c58aeb7) | GLAZERS - Enrique's Donut Shop | ![Doughnut Sheriff from The Amazing World of Gumball](https://github.com/user-attachments/assets/f3157d4f-9c9c-42d7-8d28-82e53c58aeb7)
+# ![Doughnut Cop from The Amazing World of Gumball](https://github.com/user-attachments/assets/f3157d4f-9c9c-42d7-8d28-82e53c58aeb7) ~ GLAZERS - Enrique's Donut Shop ~ ![Doughnut Cop from The Amazing World of Gumball](https://github.com/user-attachments/assets/f3157d4f-9c9c-42d7-8d28-82e53c58aeb7)
 ### Welcome to GLAZERS: Donut Shop! :D 
 We're open to the community, and we hope in return, you glaze our donut shop to unfathomable lengths!
 This is our motivation for welcoming people with open arms.  
